@@ -8,7 +8,7 @@
 **Email:** kayimresul@gmail.com
 
 ## Certifications
-### Participation Certificate
+### Completion Certificate
 ![](img/45982807854024.png)
 
 ### Top Learner Certificate
