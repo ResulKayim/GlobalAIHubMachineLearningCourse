@@ -7,9 +7,9 @@
 **Surname:** KAYIM  
 **Email:** kayimresul@gmail.com
 
-### Certifications
-## Participation Certificate
+## Certifications
+### Participation Certificate
 ![](img/45982807854024.png)
 
-## Top Learner Certificate
+### Top Learner Certificate
 ![](img/77116508219426.png)
